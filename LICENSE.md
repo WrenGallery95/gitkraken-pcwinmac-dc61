@@ -1,4 +1,4 @@
-# 
+# Natif GitHub Desktop préréglages pour Mac OS | Officiel GitHub Desktop préréglages pour PC Windows. Avec sauvegarde et restauration et plan d'exécution — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
